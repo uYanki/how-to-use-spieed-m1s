@@ -1,0 +1,1 @@
+https://dl.sipeed.com/shareURL/MAIX/M1s/M1s_Dock
